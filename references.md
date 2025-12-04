@@ -1,0 +1,1 @@
+rokkosannno yamayamadesu
